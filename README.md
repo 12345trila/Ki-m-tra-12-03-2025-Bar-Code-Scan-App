@@ -1,1 +1,3 @@
-# Ki-m-tra-12-03-2025-Bar-Code-Scan-App
+Lã Quý TRí
+MSV:22810310446
+Lớp:D17CNPM6
